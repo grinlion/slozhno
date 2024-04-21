@@ -1,1 +1,1 @@
-# slozhno_sosredotochitsya
+https://github.com/grinlion/slozhno_sosredotochitsya.git
